@@ -32,3 +32,5 @@ What you get by achieving your goals is not as important as what you become by a
 
 "Nada é tão ruim que não possa piorar ou tão bom que não possa melhorar."
 
+"Seja forte e corajosa." By Andressa Freitas
+
